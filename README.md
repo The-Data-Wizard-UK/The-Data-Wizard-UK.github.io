@@ -1,1 +1,1 @@
-# The-Data-Wizard-UK.github.io
+# The Data Wizard UK
